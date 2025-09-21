@@ -154,6 +154,7 @@ the workers’ organizations are annihilated; that the proletariat is reduced to
 ## United front in more detail:
 
 - A strategy to organise a defensive fight against the snowballing fascists
+- 
 - Meet each fascist attack with the overwhelming numbers and combined strength of the workers movement. Prevent the facists gaining momentum. In the process build the confidence of the working class.
 
 - Importantly - also a strategy to win the best workers to the KPD
@@ -164,6 +165,7 @@ the workers’ organizations are annihilated; that the proletariat is reduced to
 
 - United front as a strategy for a mass rev party to potentially break the better workers from the reformists
 
+- *if time:* United from 'from below' 
 
 ## Summing up
 
