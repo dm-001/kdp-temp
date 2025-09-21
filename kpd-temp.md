@@ -81,7 +81,11 @@ Also provides the broader context to explain the disasterous approach the KPD to
 
 - Quote comintern motion re: final phase etc
 
-- A political shift based primarily off what was useful in the consolidation of the regime in russia
+- New era of revolutionary struggles, unsolvable 'final' crisis of capitalism
+
+- Communists must stand firm and drive out any talk of partial or defensive struggle etc
+
+- Notably: A political shift based primarily off what was useful in the consolidation of the regime in russia
 
 - Quote from how workers took power re: Offensive in russia against bukharin, forced-pace industrialisation etc as aim of 'third period' internally
 
