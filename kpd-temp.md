@@ -76,6 +76,8 @@ Also provides the broader context to explain the disasterous approach the KPD to
 
 - Importantly - The stabilisation of the party leadership throughout 1920s coincides with the degeneration of the comintern and the consolidation of stalinism. By the late 20s Thalmann and co represented a number of things - but obedience to and reliance on comintern was a big one.
 
+- Internal life of the KDP also degenerated through the late 20s - in comintern mold no internal debate etc.
+
 
 ### The comintern and the Third Period:
 
