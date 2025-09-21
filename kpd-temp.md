@@ -56,6 +56,10 @@ Also provides the broader context to explain the disasterous approach the KPD to
 
 - Great depression makes that unstable setup even less stable.
 
+- Mass unemployment, hyperinflation. Millions of people see the Weimar republic offering nothing, crumbling.
+
+- SPD as largest working class organisation remains bound up with an identified with the bourgois government
+
 - Once nazis had proved themselves useful sections of the ruling class were prepared to back them if it meant a decisive blow against the workers movement
 
 ### So - what led the KPD to it's rotten positioning?
