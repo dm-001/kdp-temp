@@ -56,9 +56,9 @@ Also provides the broader context to explain the disasterous approach the KPD to
 
 - Great depression makes that unstable setup even less stable.
 
-- Mass unemployment, hyperinflation. Millions of people see the Weimar republic offering nothing, crumbling.
+- Mass unemployment, hyperinflation. Millions of people see the Weimar republic offering nothing, crumbling. Faith in the Weimar republic was falling rapidly
 
-- SPD as largest working class organisation remains bound up with an identified with the bourgois government
+- SPD as largest working class organisation remains bound up with an identified with the bourgois government and positions as *the* defenders of constitutional order
 
 - Once nazis had proved themselves useful sections of the ruling class were prepared to back them if it meant a decisive blow against the workers movement
 
@@ -103,7 +103,10 @@ Also provides the broader context to explain the disasterous approach the KPD to
 > Fascism is the bourgeoisie’s fighting organisation that relies on the active support of Social-Democracy. Social-Democracy is objectively the moderate wing of fascism. \
 *Stalin, 1924*
 
-- A mix of either ignoring and downplaying the threat of the growing fascist organisations, and at times partly siding with the fascists against the SPD (i.e. the 1931 'Red Referrendum' / Landtag referrendum)
+> In this situation of growing imperialist contradiction and sharpening of the class struggle, fascism becomes more and more the dominant method of bourgeois rule. In countries where there are strong social-democratic parties, fascism assumes the particular form of social-fascism, which to an ever-increasing extent serves the bourgeoisie as an instrument for paralysing the masses in struggle against the regime of fascist dictatorship. \
+> *MolotoTenth plenum ofv,  the Comintern executive, July 1929*
+
+- A mix of either ignoring and downplaying the threat of the growing fascist organisations - after all everyone is a fascist so what's so special about hitler, and at other times partly siding with the fascists against the SPD (i.e. the 1931 'Red Referrendum' / Landtag referrendum)
 
 - SPD, for it's part, were similarly happy to state that there was no difference between the Nazis and the Communists. The SPD leadership was deeply committed to the weimar state, and deeply identified with it. To them the KPD and Nazis were both opponents of the republic.
 
